@@ -9,7 +9,7 @@ About me.</h2>
 
 - 🎓 self learned developer :)
 
-- 🔗 join my dc https://discord.gg/pX2XyEtT
+- 🔗 join my dc https://discord.gg/QHJud6Uvrz
 
 - 🌐 Website www.hkcheats.xyz
 
